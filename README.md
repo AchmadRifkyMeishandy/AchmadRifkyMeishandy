@@ -62,6 +62,6 @@ Saya terbuka terhadap tantangan, masukan, dan kesempatan untuk belajar dari oran
 ## 🤝 Terhubung dengan Saya
 
 - **GitHub:** [AchmadRifkyMeishandy](https://github.com/AchmadRifkyMeishandy)
-- **LinkedIn:** [Achmad Rifky Meishandy](www.linkedin.com/in/achmadrifky)
+- **LinkedIn:** [Achmad Rifky Meishandy](https://www.linkedin.com/in/achmadrifky/)
 
 Terima kasih sudah berkunjung ke profil saya! 😊
